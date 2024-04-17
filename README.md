@@ -16,7 +16,7 @@
 
 💬 Ask me about **python, bash, or sql... or anything [here](https://github.com/HornScrub?tab=repositories)**
 
-⚡ Fun fact **I love cats!**
+⚡ Fun fact **I love cats soooo much!**
 
  </div>
  
